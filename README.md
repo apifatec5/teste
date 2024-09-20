@@ -32,3 +32,12 @@
 | Proatividade| ★ ★ ★ ★ ★ ★ ★ ☆ ☆ ☆ |
 
 </details>
+
+
+
+
+
+## Resultado
+
+<img width=100% src="https://user-images.githubusercontent.com/142995260/283203023-721d1212-9feb-4766-b3e5-ef7d3f43cc01.mp4">
+
